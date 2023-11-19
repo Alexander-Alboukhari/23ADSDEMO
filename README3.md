@@ -1,4 +1,5 @@
 Twi nkle, twinkle 
 little star,
 HOWI wonder what you are
-up above the world 
+up above the world so 
+like a 
